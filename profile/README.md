@@ -1,4 +1,4 @@
-# 🌟 Bienvenido GitHub Publico de SPS Solutions
+# 🌟 Bienvenido al perfil Publico de GitHub de SPS Solutions
 
 ## 🚀 Nuestra Filosofía
 
